@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Be optimistic
+2. Be strong
+3. Become Rich
